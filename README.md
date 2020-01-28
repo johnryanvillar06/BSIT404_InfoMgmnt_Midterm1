@@ -1,1 +1,1 @@
-# BSIT404_InfoMgmnt_Midterm1
+John_Ryan_Villar
